@@ -1,0 +1,1 @@
+Hi I'm Ryan Shen. I'm currently transitioning into energy after working two years in fashion and another three years receiving an education in policy. This website demonstrates my portfolio of independent projects!
